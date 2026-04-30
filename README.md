@@ -1,4 +1,6 @@
 # 🎵 Heartbreak Diaries (Vol. 4): Raat, Aansu Aur Tanhaai
+
+<img width="3000" height="3000" alt="Heartbreak Diaries (Vol  4) Raat, Aansu Aur Tanhaai - Abu Sayed Music" src="https://github.com/user-attachments/assets/0ef6a64b-f061-4d3e-a02b-3df57c57ff04" />
         
 *Original song by **[Abu Sayed](https://abusayed.com.bd)***
 
